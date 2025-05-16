@@ -1,1 +1,1 @@
-"# Anime Reviews\n\Um site avaliaá∆o e recomendaá‰es de animes" 
+"# Anime Reviews\n\Um site avalia‚Ä°√Üo e recomenda√ß√µes de animes" 
